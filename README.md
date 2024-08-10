@@ -1,6 +1,6 @@
 ### Hi there, I'm AufGekaut 👋
 
-- 🌟 Owner @ Solanarium
+- 🌟 Owner @ SYNC
 - 📫 How to reach me: 
   - Discord: AufGekaut
   - Email: dam.1en@yandex.com
